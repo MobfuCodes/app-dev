@@ -10,7 +10,7 @@ Top 3:
 3. Third item
 
 Special Mentions:
-**Men In Black**
-*The Truman Show*
+**Men In Black, **
+*The Truman Show, *
  ~~Barbie~~
-All Mission Impossible Movies :joy:
+, All Mission Impossible Movies :joy:
